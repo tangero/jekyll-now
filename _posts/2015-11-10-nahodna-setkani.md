@@ -1,0 +1,14 @@
+---
+layout: post
+title: Náhodná setkání
+date: '2015-11-10T10:11:00.000+01:00'
+author: Patrick Zandl
+tags:
+- lidé
+- příběhy
+modified_time: '2015-11-29T10:11:29.614+01:00'
+blogger_id: tag:blogger.com,1999:blog-4956385274303173015.post-7397894013988060976
+blogger_orig_url: http://krysabeha.blogspot.com/2015/11/nahodna-setkani.html
+---
+
+<div style="margin-bottom: 6px;"><span style="color: #141823; font-family: helvetica, arial, sans-serif;"><span style="font-size: 14px;">Tohle byl pro mě dlouho nepochopitelný sociologický jev. Jak si tak chodím běhat po Brandýse, vždycky tu na Vrábí (to je něco jako Vinohrady pro Pražáky, žejo) potkávám takového staršího pána, jak tu bloumá. </span></span></div><a name='more'></a><span style="color: #141823; font-family: helvetica, arial, sans-serif;">Nejdříve jsme si myslel, že prostě jde domů z večerní směny, jenže já chodím běhat dosti nepravidelně v časech 20 - 23 hodin, podle toho, jak mi to vyjde. A aby chodil z práce s tříhodinovou odchylkou, to se mi nezdálo. No a když člověk běhá, tak přemýšlí o všem možném, čímž si čistí hlavu. Například o tom, proč ten pán chodí tak pozdě domů a kolik tlačítek má mít termostat, aby neměl žádné (ano, to jsou při běhu rovnocenné problémy). Hlodalo to ve mě. Nemám rád zjevné otázky, na které neznám nezjevnou odpověď.</span><br /><div style="margin-bottom: 6px;"><span style="color: #141823; font-family: helvetica, arial, sans-serif;"><span style="font-size: 14px;">Když jsem pána potkal asi podesáté, tak jsem se odhodlal (nezapomínejte, že jsem ajťák) a zeptal se ho. A pán, když rozdýchal, že ho v deset v noci honí týpek celý v černém a se zapnutou výslechovou čelovkou, mi to vysvětlil. Před nějakou dobou mu zaměstnavatel zkrátil úvazek a tím i peníze - dělá tu v nějaké místní montážní hale udržbáře. Aby nemusel stresovat manželku tím, že jí řekne, že mají méně peněz, rozhodl se přestat chodit do hospody. Jenže do hospody po večerech byl zvyklý chodit, takže by to bylo divné. Takže se večer prochází po Brandýse a do hospody jde už jen jednou týdně.</span></span></div><div style="margin-bottom: 6px;"><span style="color: #141823; font-family: helvetica, arial, sans-serif;"><span style="font-size: 14px;">Přemýšlel jsem o tom. Na jednu stranu je to skvělé, že nechce ženu stresovat tím, že jí řekne, že jsou na tom hůře s penězi, když to může takhle vybalancovat. Procházet se po Brandýse v noci - navíc po opravě Pražské ulice - není o tolik nezdravější, než sedět v hospodě. Na druhou stranu - není to znak nedůvěry či neupřímnosti? Neměl by to ženě říct? Nebo je v tom láska, že jí to neříká? Zde přítomné slečny a dámy, čemu byste daly přednost? Vaši odpověď anonymně zpracuje automat a pomůže mnoha dalším ajťákům v budoucnosti!</span></span></div>

@@ -1,0 +1,12 @@
+---
+layout: post
+title: 'Další předstartovní panika: o víkendu 60 km na Mácháči... :)'
+date: '2017-05-11T15:42:00.000+02:00'
+author: Patrick Zandl
+tags: 
+modified_time: '2017-05-11T15:42:03.494+02:00'
+blogger_id: tag:blogger.com,1999:blog-4956385274303173015.post-597190226288580687
+blogger_orig_url: http://krysabeha.blogspot.com/2017/05/dalsi-predstartovni-panika-o-vikendu-60.html
+---
+
+Dlouho jsem nic nepsal o běhání. Po pravdě řečeno hlavně kvůli studu. Nedávno jsem našel pořad, kde Jiří Paroubek učí nějaké čínské cvičení. Třeba kloktat pusou. Sorry jako, fakt. S ohledem na to, že je to bývalý premiér, mi to přišlo extrémně trapné a hluboce blivné. A uvědomil jsem si, že takhle moje zápisky běžce - začátečníka mohou také působit. Takže brzdím psaní na téma běhu, nakonec jsou to jen moje úvahy, které mi pomáhají si utřídit dojmy.  V sobotu mám běžet šedesát kilometrů na Máchově jezeře. Moje první "ultra". Jsem smířený s tím, že to nedám, ale zkusit to chci. Vždyť jsem nedal ještě ani maraton. Kromě toho je možné po 10 a dalších 25 km to zabalit a tvářit se, že třetí kolo nebylo v plánu a je to za jednu dobrou cenu.  Začínám zase mírně panikařit. Znáte to, co na sebe, co na nohy, jaké jídlo a pití. O víkendu jsem běhal ve skalách a na pláži na Sicílii, od toho mám trochu puchýře a tenzi ve svalech, zkuste si dát pět kilometrů v písku na pobřeží a bosky. Tomáš Zahálka by záviděl (a taky zvládl bez puchýře).  Boty budou skoro nové, ale už rozběhané NB1210, od Jakuba si půjčím hydratační vestu a dám si do ní camelback, protože zkušenost ze Sicílie je jasná: nic není v kýblu, dokud je voda. Já vím, že s tím budu za důchodce, ale kategorii koule-senior mám zřejmě jen pro sebe :)  Držte mi palce. Šedesát je fakt hodně, spočítal jsem si, že za něco jako sedm hodin bych to v optimálním případě mohl dát, už teď má ale situace do optima daleko. Například proto, že žena nečekaně letí na víkend pryč, v sobotu se o děti naštěstí postará tchán, ale večer a celou neděli už musím kmitat sám a to se nikdo neptá, jestli mě nebolí zlomená noha drhnoucí o látku kalhot nebo proč na podlaze nechávám krvavé šlápoty... (Ano, počítám s tím, že i tenhle humor mě na čtyřicátém nejdéle přejde, už při dnešní firemní běžné poradě mě v tom vedru přecházel...)  Smiřte se s tím, že v sobotu bude přímý přenos. A znáte mě, když Nike chtělo tlačit maraton pod dvě hodiny, bylo to promo k tomu jen šeptanda oproti tomu, co tady rozpoutá moje snaha neztratit se u Macháče... :) Držte palce. 
