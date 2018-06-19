@@ -1,0 +1,15 @@
+---
+layout: post
+title: První dvacítka
+date: '2015-12-05T16:39:00.001+01:00'
+author: Patrick Zandl
+tags:
+- trasy
+- výkony
+modified_time: '2015-12-05T16:39:17.612+01:00'
+thumbnail: http://2.bp.blogspot.com/-mhYsu7ejrVg/VmMEM-nE60I/AAAAAAAAIFc/TMReskqrJ1Y/s72-c/IMG_3151.JPG
+blogger_id: tag:blogger.com,1999:blog-4956385274303173015.post-5826419467062665997
+blogger_orig_url: http://krysabeha.blogspot.com/2015/12/prvni-dvacitka.html
+---
+
+Sobota. To si ráno přivstanu a než se děti vyprdelí na snídani, mám pro sebe dvě luxusní hodiny. Tak jsem se rozhodl, že bych si dneska mohl dát dvacet kilometrů.&nbsp;<div><a name='more'></a><br /></div><div>Naplánoval jsem si cestu kolem Labe, je tam cyklostezka a navíc je to hezké prostředí na běh. Od domu přes ostrůvek dole u brandýského zdymadla až po zdymadlo v Kostelci nad Labem to mám vlastně přesně dvacet kilometrů. Nakonec za 2:07 vcelku v pohodě. Jen začátek musel být pomalý, asfaltka cyklostezky byla namrzlá a několikrát jsem málem hodil tlamu. Jestli se něco zdokonaluje tréning došlapu na střední část chodila, tak je to namrzlá země, na které při došlapu na patu hodíte držku.&nbsp;</div><div><br /></div><div>Jinak jsem se přihlásil na <a href="http://www.nymburskypulmaraton.cz/">Nymburský půlmaraton</a>. A rozhodl se, že příští rok to fakt podniknu: dojedu do Mělníka vlakem a z Mělníka do Brandýsa poběžím. Podél řeky je to fakt krása... <br /><div><br /><div><br /><div class="separator" style="clear: both; text-align: center;"><a href="http://2.bp.blogspot.com/-mhYsu7ejrVg/VmMEM-nE60I/AAAAAAAAIFc/TMReskqrJ1Y/s1600/IMG_3151.JPG" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="240" src="http://2.bp.blogspot.com/-mhYsu7ejrVg/VmMEM-nE60I/AAAAAAAAIFc/TMReskqrJ1Y/s320/IMG_3151.JPG" width="320" /></a></div><div class="separator" style="clear: both; text-align: center;"><i>To je ještě po sedmé a nad řekou se válí opar</i></div><br /><div class="separator" style="clear: both; text-align: center;"><a href="http://3.bp.blogspot.com/-hEH_39olpHU/VmMEM_DPUhI/AAAAAAAAIFk/xIPageT0c8o/s1600/IMG_3152.JPG" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="240" src="http://3.bp.blogspot.com/-hEH_39olpHU/VmMEM_DPUhI/AAAAAAAAIFk/xIPageT0c8o/s320/IMG_3152.JPG" width="320" /></a></div><div class="separator" style="clear: both; text-align: center;"><i>Kostelecké zdymadlo je ještě daleko, i když to tak nevypadá...</i></div><br /><div class="separator" style="clear: both; text-align: center;"><a href="http://2.bp.blogspot.com/-aKKVTfKvNv0/VmMENMSNCoI/AAAAAAAAIFg/J0YpJyUQFHs/s1600/IMG_3153.JPG" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" height="240" src="http://2.bp.blogspot.com/-aKKVTfKvNv0/VmMENMSNCoI/AAAAAAAAIFg/J0YpJyUQFHs/s320/IMG_3153.JPG" width="320" /></a></div><div class="separator" style="clear: both; text-align: center;"><i>Jo, jsem na zdymadle. Tak teď už jen ta samá cesta zpět :)</i></div><div><br /></div></div></div></div>

@@ -1,0 +1,15 @@
+---
+layout: post
+title: 'O vztahu váhy, času a světla v běhu: pět kilo nahoru, třicet vteřin nahoru'
+date: '2016-04-28T16:15:00.001+02:00'
+author: Patrick Zandl
+tags:
+- čas
+- trénink
+- výkony
+modified_time: '2016-04-28T16:15:27.946+02:00'
+blogger_id: tag:blogger.com,1999:blog-4956385274303173015.post-4357906659096789414
+blogger_orig_url: http://krysabeha.blogspot.com/2016/04/o-vztahu-vahy-casu-svetla-v-behu-pet.html
+---
+
+<br />Tuhle jsem si koupil moudrý časák o běhání (kupujete někdo nějaký, čtete něco papírového?) a byla tam tabulka, o kolik rychleji dám jakou vzdálenost podle váhy. To mě zaujalo.<br /><a name='more'></a>Momentálně ladím váhu na hodnotu 93 kg a níže, což z původních 110 kg není špatný, ale rozhodně je tu ještě prostor pro pokles. Tím, jak váha klesá pomalu (snažím se držet 2 kg měsíčně), není zlepšování patrné, takže jsem tabulku neměl, jak ověřit. <br /><br />Ale jak jsem začal běhat domů ze Zelenče, přihodilo se mi jednou, že jsem potřeboval běžet domů s batohem, co v něm normálně tahám notebook do práce. Zvážil jsem jej doma a měl skoro osm kilo, zatímco malý batůžek, v němž mám jen boty, kalhoty a budnu a s nímž běhám jindy, měl necelé tři. Pět kilo rozdíl. Zatímco s lehčím batohem mám v průměru na té trase kilometr za 5:25 min, s tímhle batohem za 5:55, tedy o půl minuty více. Zajímavá závislost. <br /><br />Přemýšlel jsem, jestli to není jen tím, že mě ten větší batoh spíše štve, ale to tak není. Trasa je rovná, jeho větší pohyb mě neomezuje. Fakt se jen projeví váha a větší zátěž.<br /><br />Ve výsledku tedy počítám a poznamenávám si pro budoucnost, že pod 5 minut na kilometr bych se měl dostat koncem května, až uberu přes dva kilogramy váhy. Tak uvidíme :)<br /><br /><br />Samo o sobě je tahle hra čísel velmi zajímavá. Když jsem začínal v září 2015, běhal jsem spíše kolem 7 min/km a průměrně jsem dával 5 km. V říjnu jsem se dostal na 6 min/km a běhal třetinu pět, třetinu sedm a třetinu 10 km okruhy. V listopadu a prosinci jsem se snažil naběhávat objemy a u téhle rychlosti i zůstával, protože jsem dbal na to, abych nepřešvihnul tep. Zrychlovat pod šest min/km jsem začal v březnu, kdy jsem se vykašlal na kontrolu tepu poté, co mi kardiolog vesele oznámil, že jsem beztak mimo tabulky. V poslední době si říkám, jestli jsem do toho neměl nastoupit ostřeji, protože když o to jde, tak se mi zdá, že zabírám slušně. Trochu depresivní je čtení <a href="http://12honzade.blogspot.cz/2009/03/brezen-mesic-knihy-internetu-12.html">12Honzy</a>, který se do formy dostal podstatně rychleji, to jsem si od sebe sliboval teda víc. Na druhou stranu 12Honza nebyl tak tlustý prase, takže si odpustil likvidaci těch úvodních 15 kg, to je samozřejmě třeba brát v potaz...<br /><br />Jenže … když se teď dívám do statistik Stravy, tak slušné mám běhy, které jsou za denního světla, výrazně pomalejší mám ty, které jsou noční. A vlastně až do března jsem všechno běhal v noci, to bylo jednou za dva týdny, kdy jsem se dostal ke běhu ve dne. A běh v noci mi vždycky vychází pomalejší. Je to náhoda, psychologie, přijde / vyjde to tak i ostatním?

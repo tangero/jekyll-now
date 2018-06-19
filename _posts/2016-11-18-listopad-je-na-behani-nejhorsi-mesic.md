@@ -1,0 +1,14 @@
+---
+layout: post
+title: Listopad je na běhání nejhorší měsíc
+date: '2016-11-18T14:09:00.002+01:00'
+author: Patrick Zandl
+tags:
+- motivace
+modified_time: '2016-11-18T14:09:32.118+01:00'
+thumbnail: https://4.bp.blogspot.com/-SVfGcG8BaBM/WC79YXlIjfI/AAAAAAAAIsE/x6R7VWpwOCQ_w1V07pLqBPu1EtsAK7rxwCLcB/s72-c/DSCF9010.JPG
+blogger_id: tag:blogger.com,1999:blog-4956385274303173015.post-1759186861158137953
+blogger_orig_url: http://krysabeha.blogspot.com/2016/11/listopad-je-na-behani-nejhorsi-mesic.html
+---
+
+Je už pár dní po půlce listopadu a já mám naběháno 45 kilometrů a běhat jsem nebyl už týden. Rýmička, pracovní povinnosti a nedostatek dříve ověřených příležitostí, to je spolehlivý zabiják. <br /><br />Pak jsem se podíval do své databáze výsledků ostatních lidí, kterou jsem různě nastahával z public výsledků Stravy a je to oficiální. V listopadu mají lidi (bral jsem okolní země) největší problémy s běháním. Buďto se jim propadnou počty naběhaných kilometrů, nebo nerostou tak silně (to u lidí, kteří je tlačí silou nahoru).<br /><br />Proč, to samozřejmě z dat nevidím. Vidím to jen na sobě. Přišla rýmička, něco se usadilo v krku, říkal jsem si, že to nebudu pokoušet, když jsem unavený i z hrabání listí na zahradě. Do toho jsem si dal víkend v dolech a to úplně taky neprospělo lazení zdraví, i když arsen je prý na rýmičku jinak dobrý, neboť ji dost umrtvuje.&nbsp;<div><br /></div><table align="center" cellpadding="0" cellspacing="0" class="tr-caption-container" style="margin-left: auto; margin-right: auto; text-align: center;"><tbody><tr><td style="text-align: center;"><a href="https://4.bp.blogspot.com/-SVfGcG8BaBM/WC79YXlIjfI/AAAAAAAAIsE/x6R7VWpwOCQ_w1V07pLqBPu1EtsAK7rxwCLcB/s1600/DSCF9010.JPG" imageanchor="1" style="margin-left: auto; margin-right: auto;"><img border="0" height="266" src="https://4.bp.blogspot.com/-SVfGcG8BaBM/WC79YXlIjfI/AAAAAAAAIsE/x6R7VWpwOCQ_w1V07pLqBPu1EtsAK7rxwCLcB/s400/DSCF9010.JPG" width="400" /></a></td></tr><tr><td class="tr-caption" style="text-align: center;"><i>V dole se neběhá, ale leze - i když tam měli i kolo :)</i></td></tr></tbody></table><div>Ztratila se příležitost. Ještě v říjnu jsem běhal z práce nebo do práce, jenže v listopadu uhodily větší zimy a musel jsem do práce v tlusté bundě, kterou už jsem nenašlapal do žádného batohu. A běhání večer bylo ještě více problematické, protože bylo méně času a více únavy. Když se mi podařilo usnout na lavičce, kam jsem si v noci sednul, abych si převázal tkaničky, pochopil jsem, ze by to fakt chtělo vypustit. <br /><br />Pokusím se pauzu do konce týdne ukončit a alespoň trochu se k běhání vrátit, ale tak mě hříšně napadlo, zda není čas poohlédnout se po nějaké indoor aktivitě, například běhacím trenažéru, nějakém posilovacím stroji. Nebo plavání. </div>

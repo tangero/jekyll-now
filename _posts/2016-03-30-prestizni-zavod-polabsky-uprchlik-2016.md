@@ -1,0 +1,15 @@
+---
+layout: post
+title: 'Prestižní závod Polabský uprchlík 2016 z Mělníka do Brandýsa se běží 10.dubna '
+date: '2016-03-30T10:28:00.001+02:00'
+author: Patrick Zandl
+tags:
+- závody
+- Polabský uprchlík
+modified_time: '2016-03-30T11:34:32.817+02:00'
+thumbnail: https://2.bp.blogspot.com/-aKKVTfKvNv0/VmMENMSNCoI/AAAAAAAAIFs/R81F6uqO2nMuY16S7JYvbzsxs9ZbsxZww/s72-c/IMG_3153.JPG
+blogger_id: tag:blogger.com,1999:blog-4956385274303173015.post-8482411306536852588
+blogger_orig_url: http://krysabeha.blogspot.com/2016/03/prestizni-zavod-polabsky-uprchlik-2016.html
+---
+
+Vrchol letošní sezóny ještě před jejím začátkem? Položení základů nové tradice, která zavazuje? Ne, jen jsem chtěl vyzkoušet uběhnout třicet a dát tomu nějaký termín, abych se nemohl vymlouvat. A to je právě náš dubnový Polabský uprchlík :)<br /><a name='more'></a><br /><br />Termín připadl na 10. dubna, to je neděle - čas vymyšlený ještě nemáme, asi nějaké inteligentní dopoledne. Doprovod se uvolil dělat mi Jakub, po jeho šluknovském víkendu se 115 kilometry tohle slupne jako malinu a dost možná mě zvládne i přehodit přes rameno. Samozřejmě, pokud na to nezapomněl, že ano … ale tvrdí, že ne!<br /><br />Závod má jednu výhodu, u závodů ne tak obyvklou. O pořadí je předem rozhodnuto, Jakub doběhne předposlední, já obsadím hezké druhé místo, ostatní pozice jsou nehodnocené ...<br /><br /><table align="center" cellpadding="0" cellspacing="0" class="tr-caption-container" style="margin-left: auto; margin-right: auto; text-align: center;"><tbody><tr><td style="text-align: center;"><a href="https://2.bp.blogspot.com/-aKKVTfKvNv0/VmMENMSNCoI/AAAAAAAAIFs/R81F6uqO2nMuY16S7JYvbzsxs9ZbsxZww/s1600/IMG_3153.JPG" imageanchor="1" style="margin-left: auto; margin-right: auto;"><img border="0" height="300" src="https://2.bp.blogspot.com/-aKKVTfKvNv0/VmMENMSNCoI/AAAAAAAAIFs/R81F6uqO2nMuY16S7JYvbzsxs9ZbsxZww/s400/IMG_3153.JPG" width="400" /></a></td></tr><tr><td class="tr-caption" style="text-align: center;">Když vidíte zdymadlo a elektrárnu v Kostelci, už máte před sebou posledních deset kilometrů, takže pohoda... !</td></tr></tbody></table><br /><br />No a kdyby se někomu z vás chtělo běžet závod na zhruba třicet kiláků z Mělníka do Brandýsa podél Labe s celkovým převýšením asi 5300 milimetrů, tak se ozvěte. Dopravní dostupnost vlakem či busem z Prahy je u obojího v pohodě a v Brandýse vám ukážu luxusní pláž aji s pískem, kde se můžete ošplejchnout v Labi :)<br /><br /><b>Propozice k závodu</b><br /><br />Startovné: v případě, že respektujete výše uvedené pořadí účastníků, je poskytnuta sleva 100%<br />Občerstvení: od populární značky selfservice, jinak podniky na trase labské stezky.<br />Registrace k závodu: dostavením se na místo startu a komentářem zde ...<br />Časový limit: dokud nedojde Patrick ...<br /><br /><b><a href="https://connect.garmin.com/modern/course/11961163">Celou trasu najdete zde</a>&nbsp;pro Garmin</b><br /><b><a href="https://www.strava.com/routes/4502217">Trasa na Strava.com</a>&nbsp;</b>
